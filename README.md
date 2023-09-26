@@ -8,10 +8,9 @@ Meu nome é Pedro Enrico Santinoni Pretti, sou aluno da rede pública
 - Minha comida favorita é sushi🍣
 - Gosto de jogar call of dury warzone
 
-### Por favor me ajudem
+
+### Entrem em contato
 
 📫 pedro.pretti@escola.pr.gov.br
-
-![](https://media.tenor.com/MRD8R-JrduYAAAAC/goat-goat-lick.gif)
 
 ![](https://media.tenor.com/_nTxGxrtdmwAAAAd/goat-goats-of-sui.gif)
