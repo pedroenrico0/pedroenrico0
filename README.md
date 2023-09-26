@@ -13,4 +13,6 @@ Meu nome é Pedro Enrico Santinoni Pretti, sou aluno da rede pública
 
 📫 pedro.pretti@escola.pr.gov.br
 
-![](https://media.tenor.com/_nTxGxrtdmwAAAAd/goat-goats-of-sui.gif)
+![](https://media.tenor.com/L1SOy0Q8O7gAAAAC/eyebrow-raise-shrek.gif)
+
+![](https://media.tenor.com/Q17iALqVpxgAAAAC/rock-one-eyebrow-raised-rock-staring.gif)
