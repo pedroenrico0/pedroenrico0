@@ -16,3 +16,10 @@ Meu nome é Pedro Enrico Santinoni Pretti, sou aluno da rede pública
 ![](https://media.tenor.com/L1SOy0Q8O7gAAAAC/eyebrow-raise-shrek.gif)
 
 ![](https://media.tenor.com/Q17iALqVpxgAAAAC/rock-one-eyebrow-raised-rock-staring.gif)
+
+![](https://media.tenor.com/5D7qqanXrLoAAAAC/spider-man-spider-man-memes.gif)
+
+![](https://media.tenor.com/OM__4caso8gAAAAC/oh-yeah-vector.gif)
+
+![](https://media.tenor.com/rgdUmG91pLAAAAAd/tobey-cry.gif)
+
