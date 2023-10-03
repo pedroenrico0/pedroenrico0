@@ -21,5 +21,6 @@ Meu nome é Pedro Enrico Santinoni Pretti, sou aluno da rede pública
 
 ![](https://media.tenor.com/OM__4caso8gAAAAC/oh-yeah-vector.gif)
 
-![](https://media.tenor.com/rgdUmG91pLAAAAAd/tobey-cry.gif)
+![](https://media.tenor.com/zQlBGmMRnxwAAAAC/no-ele-caves.gif)
 
+![](https://media.tenor.com/BLOZw5VmYA8AAAAC/brain.gif)
